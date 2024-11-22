@@ -1,4 +1,5 @@
-![](https://files.catbox.moe/qpivdd.png)
+<p align="center"> ![](https://files.catbox.moe/qpivdd.png) </p>
+
 <p align="center"> delia , angell , vanille </p>
 
 <p align="center"> shi ／ chu ／ neko + doll </p>
