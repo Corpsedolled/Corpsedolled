@@ -1,6 +1,6 @@
 <p align="center"><img src="https://files.catbox.moe/bd9e2o.png"> </p>
 
-<p align="center"> delia , angell , vanille </p>
+<p align="center"> delia , angell , salem </p>
 
 <p align="center"> shi ／ doll </p>
 
