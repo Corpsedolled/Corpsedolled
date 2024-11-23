@@ -1,10 +1,5 @@
-<p align="center"><img src="https://files.catbox.moe/bd9e2o.png"> </p>
+delia , zeke , salem
 
-<p align="center"> delia , angell , salem </p>
-
-<p align="center"> shi ／ doll </p>
-
-<p align="center"> 
+he ／ doll lesboygirlthing
   
-[RENTRY](https://rentry.co/selzzar) - [RETROSPRING](https://retrospring.net/@catalan) - [NEOSPRING](https://neospring.org/@catalan)
-</p> 
+[rentry](https://rentry.co/selzzar) [retrosping](https://retrospring.net/@catalan) [neospring](https://neospring.org/@catalan)
