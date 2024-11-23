@@ -6,6 +6,5 @@
 
 <p align="center"> 
 
-[RENTRY](https://rentry.co/vaniille) - [RETROSPRING](https://retrospring.net/@catalan) - [NEOSPRING](https://neospring.org/@catalan)
-
+[RENTRY](https://rentry.co/selzzar) - [RETROSPRING](https://retrospring.net/@catalan) - [NEOSPRING](https://neospring.org/@catalan)
 </p> 
